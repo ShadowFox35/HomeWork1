@@ -1,1 +1,1 @@
-# https://ShadowFox35.github.io/Nastya/README
+# https://ShadowFox35.github.io/Nastya/cv
